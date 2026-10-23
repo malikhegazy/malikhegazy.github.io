@@ -1,1 +1,0 @@
-# malikhegazydev.github.io
